@@ -35,7 +35,7 @@ Hired by a website design firm as a copywriter/editor and quality assurance cont
 Worked with smaller companies to create and maintain their websites.
 
 - **Four Corners Creative**, New York, NY (2011-2013): *A locally-owned studio offering classes in dance, acting and singing to children in Manhattan.*
-- **Abbey Bell Catering**, Hoboken, NJ: *A small, local catering company that offers catering for events, cooking lessons, and weekly menus.*
+- **Abbey Bell Catering**, Hoboken, NJ (2011): *A small, local catering company that offers catering for events, cooking lessons, and weekly menus.*
 
 ## Marketing Communications Specialist
 **PTPN**, Calabasas, CA, 2007-2008
