@@ -64,6 +64,11 @@ Selected all product for print and online catalogs, worked with purchasing to ve
 ## Friends of the SMU Libraries Library Science Scholarship
 **Southern Methodist University**, Dallas, TX, 2020
 
+# Academic service
+
+## Southern Methodist University
+**Southern Methodist University**, Dallas, TX, 2020
+
 # Skills
 
 - Analytics and organization: Expert at analyzing website flow and redesigning a site’s architecture in order to maximize the user’s experience and ability to find information quickly.
