@@ -67,7 +67,11 @@ Selected all product for print and online catalogs, worked with purchasing to ve
 # Academic service
 
 ## Southern Methodist University
-**Southern Methodist University**, Dallas, TX, 2020
+- Member, SMU LEAD committee, which produces staff development/continuing education programs for library staff, 2019-2020.
+- Member, Information Literacy Stipend committee, which reviews applications for a biannual stipend to encourage the teaching of information literacy with the partnership of SMU librarians, 2020.
+
+# Presentations
+- McMichael J, Bliss JR. Building more diverse collections for younger readers. Denton, TX (given virtually). Cross Timbers Library Collaborative Conference. 2020.
 
 # Skills
 
